@@ -30,7 +30,7 @@ WI SNIPER is intended to be used for legal security purposes only, and you shoul
 
 Thats It... If You Like This Repo. Please Share This With Your Friends..
 
- Don't Forget To SUBSCRIBE My [YouTube](https://www.youtube.com/channel/UCYK1n9A4TUq1CvGc6F3DzoA) Channel..!!!
+ Don't Forget To SUBSCRIBE My [YouTube](https://www.youtube.com/inziXploit444) Channel..!!!
 
 ***Thankyou.***
 ***Keep Visiting..***
